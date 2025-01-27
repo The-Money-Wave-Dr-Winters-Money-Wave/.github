@@ -38,6 +38,15 @@ To learn more about this life-changing program, visit today!
 
 ---
 
+<div style="text-align: center;">
+    <a href="https://842114pgrzzxas6j1mkx0495zn.hop.clickbank.net/?&tid=usamoneywaves" target="_blank" rel="noopener noreferrer">
+        <img src="https://miro.medium.com/v2/resize:fit:640/format:webp/1*30dlje9QBuIXZFI4vPTMwg.png" alt="How Does the Money Wave Work?" title="How Does the Money Wave Work?" />
+    </a>
+</div>
+
+
+---
+
 ## What is The Money Wave?
 
 ![The Science Behind Money Wave](https://usa-moneywaves.com/assets/images/the-science-behind-money-wave.webp "The Science Behind Money Wave")
